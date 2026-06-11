@@ -1,4 +1,5 @@
-## Hi there 👋
+## pls subscribe and follow. i'm needy and desperate </3
+https://www.twitch.tv/solsongbird
 
 <!--
 **solsongbirdthecoder/solsongbirdthecoder** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
