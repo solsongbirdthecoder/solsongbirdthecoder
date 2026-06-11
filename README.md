@@ -1,6 +1,6 @@
 ## pls subscribe and follow. i'm needy and desperate </3
 
-## just tryna have fun and make others smile~ no schedule yet. will try and bring out content when I can, mostly VODS from streams. hope you enjoy. :)
+## just tryna have fun and make others smile~ streams twice a week. will try and bring out content when I can, mostly VODS from streams. hope you enjoy. :)
 https://www.twitch.tv/solsongbird
 
 <!--
